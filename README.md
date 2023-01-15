@@ -1,7 +1,30 @@
-# j4m27.github.io
+# Crochet Projects To Make in The Future
 Jamiela Ynnah A. Fuentebella
 
-<iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/2upqv3j8wrUT9TBc7UKgE0?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
----
+## Table of Contents:
 
-![cat](https://i.pinimg.com/564x/b4/e7/5f/b4e75f7b1a62277c5d935c26086779bc.jpg)
+
+### 1) Star Hat
+pattern/tutorial:
+
+![star hat](https://i.pinimg.com/564x/05/2c/f2/052cf27e4c8c7531259873cd4330ca3f.jpg)
+![star hat](https://i.pinimg.com/564x/99/1d/4d/991d4ddfdf7519ce85043f6efa9e7d28.jpg)
+![star hat](https://i.pinimg.com/564x/0e/6c/a0/0e6ca082bf7731069942d69610877aeb.jpg)
+![star hat](https://i.pinimg.com/564x/41/ce/b2/41ceb2ab95d29ed5b12c6553cbf971c9.jpg)
+
+### 2) Star Bag (var 1)
+pattern/tutorial: 
+
+![star bag v1](https://i.pinimg.com/564x/a7/aa/13/a7aa1376f9d44a80b100bac8cb224006.jpg)
+![star bag v1](https://i.pinimg.com/564x/05/0b/c8/050bc899c7450d61b1497f87a9470dec.jpg)
+![star bag v1](https://i.pinimg.com/564x/3a/01/1c/3a011ccc36c23124f59abf1de8e9ba6a.jpg)
+
+### 3) Star Bag (var 2)
+### 4) 2 Granny Squared Flower Bag - for my mother
+pattern/tutorial:
+
+![granny sq flower bag](https://i.pinimg.com/564x/99/00/9b/99009b2c3eafbe14c192a5400c4e36e7.jpg)
+![granny sq flower bag](https://i.pinimg.com/564x/3f/50/ab/3f50abc4859f90cf5a828070a5c6e22e.jpg)
+![granny sq flower bag](https://i.pinimg.com/564x/08/27/9e/08279e8e672edb84dbab4384530dab22.jpg)
+
+### 5) 
